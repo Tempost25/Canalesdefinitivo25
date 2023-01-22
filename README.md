@@ -1,2 +1,0 @@
-# Canalesdefinitivo25
-deportes
